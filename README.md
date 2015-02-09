@@ -1,0 +1,2 @@
+# tinohudak.sk
+tinohudak.sk
